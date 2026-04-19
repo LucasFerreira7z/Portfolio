@@ -8,4 +8,4 @@
 
 > "Evolving is the first step to innovating."
 
-📫 **Let's exchange ideas?** lucasferreiradias47@gmail.com
+📫 **Let's exchange ideas?** https://www.linkedin.com/in/lucas-ferreira-aa4023384/
